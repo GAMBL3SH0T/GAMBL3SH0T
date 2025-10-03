@@ -4,6 +4,7 @@
 **GAMBL3SH0T/GAMBL3SH0T** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
+<img width="824" height="542" alt="cyrene" src="https://github.com/user-attachments/assets/0e552e3c-95fb-4b47-be4e-5172a9d3be35" />
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
