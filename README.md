@@ -2,5 +2,5 @@
 
 <!--
 **GAMBL3SH0T/GAMBL3SH0T** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-![image alt](<img width="824" height="542" alt="image" src="https://github.com/user-attachments/assets/812aed1c-b9d7-43c7-ad19-8e27882e2ed4" />)
+![image](<img width="824" height="542" alt="Image" src="https://github.com/user-attachments/assets/3002d2b8-bd7b-4b7d-9c19-c92e2a9dcc72" />)
 
