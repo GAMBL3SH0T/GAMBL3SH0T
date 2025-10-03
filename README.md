@@ -1,4 +1,22 @@
 <img width="824" height="542" alt="Image" src="https://github.com/user-attachments/assets/3002d2b8-bd7b-4b7d-9c19-c92e2a9dcc72" />
+
+
+                  ⬫       ׄ         ꪆ୧       ׅ         ⬫
+
+                  
+             ੭੭       ݂     17.  ( 𝐂𝐨𝐭𝐭𝐨𝐧 / 𝐀𝐱𝐞𝐥 )      ׄ 💫 ꒱
+
+             
+                   ⁺        ꔫ   ׅ  𝐌𝐞𝐥𝐚𝐧𝐢𝐞 𝐌𝐚𝐫𝐭𝐢𝐧𝐞𝐳 , 𝐋𝐚𝐧𝐚 𝐃𝐞𝐥 𝐑𝐞𝐲 , 𝐒𝐇𝐄 𝐖𝐀𝐍𝐓𝐒 𝐑𝐄𝐕𝐄𝐍𝐆𝐄.    💎     ₊﹒    ⌣
+
+                   
+            𝐖𝐚𝐧𝐭 𝐦𝐨𝐫𝐞 𝐢𝐧𝐟𝐨? 𝐜𝐡𝐞𝐜𝐤 𝐦𝐲 𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞.
+
+             
+                 ꒰         ׂ     𝐈 𝐥𝐨𝐯𝐞 𝐗𝐢𝐚𝐨 𝐬𝐨 𝐦𝐮𝐜𝐡 𝐛𝐭𝐰!     ♡.           𓈒       𝟢𝟣
+
+                 
+
+@not.aerin
 <!--
-<img width="824" height="542" alt="Image" src="https://github.com/user-attachments/assets/3002d2b8-bd7b-4b7d-9c19-c92e2a9dcc72" />
 
